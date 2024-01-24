@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://www.52aike.com/](https://www.52aike.com/)
 
-- ⚡ Fun fact **蚂蚁集团资深技术专家，详见：https://www.52aike.com/**
+- ⚡ Fun fact **新百胜公司资深技术专家，详见：https://www.52aike.com/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
